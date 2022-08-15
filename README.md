@@ -3,3 +3,4 @@
 ![Captura de pantalla 2022-08-14 204205](https://user-images.githubusercontent.com/80177649/184564120-b81ddd66-dc21-4719-8ca5-3ebfad3ea663.png)
 ![Captura de pantalla 2022-08-14 205618](https://user-images.githubusercontent.com/80177649/184565065-cdcdd11b-fd69-4960-9431-654e9d6aa39c.png)
 ![Captura de pantalla 2022-08-14 205711](https://user-images.githubusercontent.com/80177649/184565108-11839f91-bad4-478b-9bc4-9b384c94e6ca.png)
+![Captura de pantalla 2022-08-14 210002](https://user-images.githubusercontent.com/80177649/184565330-53552ad3-92f1-4eb5-9e4a-3d10487060ed.png)
